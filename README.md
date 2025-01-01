@@ -33,7 +33,6 @@ Teasing scenes where your sub is not allowed a full release.
 
 ### Cage Off
 
-* Sub watches a video of sex with bull while being edged
 * Ruined into a condom and made to eat cum
 * outercourse, allowed to hump your legs, thighs, or feet
 * tease sub with different materials, silk scarf, soft panties, leather gloves, etc
@@ -48,6 +47,7 @@ Teasing scenes where your sub is not allowed a full release.
    * Chair
 * Make him wear your panties
 * Make him take your worn panties in his mouth
+* Sub watches a video of sex with bull while being edged
 * sub consumes the contents of a condom saved from a session with a bull
 
 ## Sub Reward Scenes
@@ -58,14 +58,15 @@ Teasing scenes where your sub is not allowed a full release.
 
 ## Sub Punishments Scenes 
 
-Punishments for general behavor correction or when your sub has an unauthorized orgasm or just because
+Punishments for general behavor correction or when your sub has an unauthorized orgasm or just because.
 
 * spanking
 * nipple clamps nipple torture
 * cock/ball spanking
 * tied up timeouts (Closet/corner)
 * sensory deprivation
-* added duration to the amount of time between releases
+* add duration to the amount of time between releases
+* icy hot on balls
 
 ## Advanced Scenes
 
