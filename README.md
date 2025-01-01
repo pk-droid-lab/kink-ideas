@@ -6,6 +6,7 @@
 * Ask me Anything! (AMA)
 * Chronicle an entire month of your sub locked with no full releases or ruins. Keep track of the days for the fans, discuss frustration level. Track the count of the dommes orgasms. He's only allowed out for weekly cleanings/groomings.
 * Practice locking and unlocking him so that he never has control of the key
+* Show / Describe how the keys are kept from sub (e.g. keysafe / sealed envelope)
 
 ## Domme Focus Scenes
 
@@ -19,6 +20,8 @@
 * Sub wears multiple condoms to reduce sensitivity for sex with no stimulation. Or numbing cream and condoms.
 * Show the process of your sub helping you get ready for your bull
 * Oral sex cleaning domme up after bull has finished inside her
+* Discuss upcoming dates with bulls
+* Describe some of the most memorable nights with bulls
 
 ## Sub Teasing Scenes
 
@@ -29,30 +32,34 @@ Teasing scenes where your sub is not allowed a full release.
 * edging with cage on
 * Vibrator on balls / cage
 * play with his nipples
-* Prostate massage with insertable toy or gloved fingers
+* Prostate massage with insertable toy or lubed latex gloved fingers
 
 ### Cage Off
 
-* Ruined into a condom and made to eat cum
-* outercourse, allowed to hump your legs, thighs, or feet
-* tease sub with different materials, silk scarf, soft panties, leather gloves, etc
+* Edging and teasing with cage off
+* Ruined into a condom or a shot glass and made to consume
+* outercourse, allowed edging humping your legs, thighs, or feet
+* tease/edge sub with different materials, silk scarf, soft panties, leather gloves, etc
+* tease/edge with heels/boots/stockings
+* tease with a feather
 * fleshlight teasing
 
 ## General Femdom Ideas
 
+* Licking precum from teasing
 * any of the above activities while your sub is restrained and blindfolded/gagged
 * Sub restrained in various positions for teasing/punishment
    * Spreadeagle on bed
    * standing hands cuffed to door frame
    * Chair
-* Make him wear your panties
-* Make him take your worn panties in his mouth
+* Make him wear your panties or stockings
+* Make him take your worn panties in his mouth or make him sniff them during edging
 * Sub watches a video of sex with bull while being edged
 * sub consumes the contents of a condom saved from a session with a bull
 
 ## Sub Reward Scenes
 
-* full release
+* unlocked full release after completing a full lock up sentence (e.g. 1 month)
 * cum on boots/heels and made to lick clean
 * legs , boot or heel fucking
 
@@ -71,6 +78,7 @@ Punishments for general behavor correction or when your sub has an unauthorized 
 ## Advanced Scenes
 
 * Sub tied to chair blindfolded in corner while domme and bull have sex. 
+* Sub tied up while domme txts, chats, phonecall with bull
 * Make a rule that your sub is never allowed out of his cage unless he's blindfolded and restrained. I.e. he is never allowed to touch or see himself erect again.
 * while eding him , say he can have a release if he divulges deepest darkest fantasies, but then don't let him go over the edge
 * Ruin him, then freeze his semen, make him suck on frozen cum cube while teasing in another scene
