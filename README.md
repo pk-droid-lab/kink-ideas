@@ -17,7 +17,8 @@
 * Sub watches domme play with a vibrator or anchored dildo, instructed to watch and take notes on how to pleasure
 * Cuckolding scene shot from the closet
 * Pussy worship
-* Sub wears multiple condoms to reduce sensitivity for sex with no stimulation. Or numbing cream and condoms.
+* Sub wears multiple condoms to reduce sensitivity for sex with no stimulation. Or numbing cream and condoms. Sub is not allowed to pump.
+* Sub wears a cock sheath extender for sex
 * Show the process of your sub helping you get ready for your bull
 * Oral sex cleaning domme up after bull has finished inside her
 * Discuss upcoming dates with bulls
@@ -36,6 +37,7 @@ Teasing scenes where your sub is not allowed a full release.
 * pegging training
 * tease subs body with different materials, silk scarf, soft panties, leather gloves, etc
 * dry humping his cage
+* caged blowjob
 
 ### Cage Off
 
@@ -57,12 +59,14 @@ Teasing scenes where your sub is not allowed a full release.
    * Spreadeagle on bed
    * standing hands cuffed to door frame
    * Chair
+* Make your sub wear a straightjacket
 * Show how your sub gets tied in the closet when a bull comes over
 * Make him wear your panties or stockings
 * Make him take your worn panties in his mouth or make him sniff them during edging
 * Sub watches a video of sex with bull while being edged
 * sub consumes the contents of a condom saved from a session with a bull
 * Sub worships your boots/heels
+* Train sub to give a dildo a blowjob
 
 ## Sub Reward Scenes
 
