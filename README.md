@@ -67,6 +67,7 @@ Teasing scenes where your sub is not allowed a full release.
 * sub consumes the contents of a condom saved from a session with a bull
 * Sub worships your boots/heels
 * Train sub to give a dildo a blowjob
+* Get a st. andrews cross for your playroom
 
 ## Sub Reward Scenes
 
