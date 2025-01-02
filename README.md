@@ -33,16 +33,21 @@ Teasing scenes where your sub is not allowed a full release.
 * Vibrator on balls / cage
 * play with his nipples
 * Prostate massage with insertable toy or lubed latex gloved fingers
+* pegging training
+* tease subs body with different materials, silk scarf, soft panties, leather gloves, etc
+* dry humping his cage
 
 ### Cage Off
 
 * Edging and teasing with cage off
 * Ruined into a condom or a shot glass and made to consume
 * outercourse, allowed edging humping your legs, thighs, or feet
-* tease/edge sub with different materials, silk scarf, soft panties, leather gloves, etc
+* tease/edge sub's cock with different materials, silk scarf, soft panties, leather gloves, etc
 * tease/edge with heels/boots/stockings
 * tease with a feather
+* tease with spikey wheel thing
 * fleshlight teasing
+* get him really close edging and then use a bag of ice to cool him down and relock
 
 ## General Femdom Ideas
 
@@ -52,10 +57,12 @@ Teasing scenes where your sub is not allowed a full release.
    * Spreadeagle on bed
    * standing hands cuffed to door frame
    * Chair
+* Show how your sub gets tied in the closet when a bull comes over
 * Make him wear your panties or stockings
 * Make him take your worn panties in his mouth or make him sniff them during edging
 * Sub watches a video of sex with bull while being edged
 * sub consumes the contents of a condom saved from a session with a bull
+* Sub worships your boots/heels
 
 ## Sub Reward Scenes
 
@@ -70,6 +77,8 @@ Punishments for general behavor correction or when your sub has an unauthorized 
 * spanking
 * nipple clamps nipple torture
 * cock/ball spanking
+* cock and ball torture with spikey wheel thing
+* clothespins 
 * tied up timeouts (Closet/corner)
 * sensory deprivation
 * add duration to the amount of time between releases
@@ -81,6 +90,8 @@ Punishments for general behavor correction or when your sub has an unauthorized 
 * Sub tied up while domme txts, chats, phonecall with bull
 * Make a rule that your sub is never allowed out of his cage unless he's blindfolded and restrained. I.e. he is never allowed to touch or see himself erect again.
 * while eding him , say he can have a release if he divulges deepest darkest fantasies, but then don't let him go over the edge
+* Have your sub pick out his favorite outfit of yours, blindfold him so he isn't allowed to see you
 * Ruin him, then freeze his semen, make him suck on frozen cum cube while teasing in another scene
+* Teasing scene have your sub choose his favorite outfit, then blindfold him and dress up for him but he's not allowed to see you in it
 
 
