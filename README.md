@@ -15,6 +15,7 @@
 * Full body massage / body worship
 * Reverse pegging scene, sub wears a dildo harness at waist or face gag dildo
 * Sub watches domme play with a vibrator or anchored dildo, instructed to watch and take notes on how to pleasure
+* Queening / Facesitting
 * Cuckolding scene shot from the closet
 * Pussy worship
 * Sub wears multiple condoms to reduce sensitivity for sex with no stimulation. Or numbing cream and condoms. Sub is not allowed to pump.
@@ -59,6 +60,8 @@ Teasing scenes where your sub is not allowed a full release.
    * Spreadeagle on bed
    * standing hands cuffed to door frame
    * Chair
+* teasing with your hand over his mouth
+* teasing where your sub isn't allowed to make any sound else he'll be punished
 * Make your sub wear a straightjacket
 * Show how your sub gets tied in the closet when a bull comes over
 * Make him wear your panties or stockings
