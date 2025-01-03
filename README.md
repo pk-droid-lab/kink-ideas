@@ -39,6 +39,8 @@ Teasing scenes where your sub is not allowed a full release.
 * tease subs body with different materials, silk scarf, soft panties, leather gloves, etc
 * dry humping his cage
 * caged blowjob
+* caged teasing with fleshlight
+* caged teasing with boots/heels
 
 ### Cage Off
 
@@ -98,8 +100,8 @@ Punishments for general behavor correction or when your sub has an unauthorized 
 * Sub tied up while domme txts, chats, phonecall with bull
 * Make a rule that your sub is never allowed out of his cage unless he's blindfolded and restrained. I.e. he is never allowed to touch or see himself erect again.
 * while eding him , say he can have a release if he divulges deepest darkest fantasies, but then don't let him go over the edge
-* Have your sub pick out his favorite outfit of yours, blindfold him so he isn't allowed to see you
 * Ruin him, then freeze his semen, make him suck on frozen cum cube while teasing in another scene
 * Teasing scene have your sub choose his favorite outfit, then blindfold him and dress up for him but he's not allowed to see you in it
+* Play a really unfair game that he cant win, and then punish him after
 
 
